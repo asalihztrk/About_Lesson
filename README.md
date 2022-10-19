@@ -1,1 +1,1 @@
-deneme
+Ders içi faaliyetlerim
